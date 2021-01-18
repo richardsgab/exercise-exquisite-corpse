@@ -1,5 +1,5 @@
 # exercise-exquisite-corpse
-
+LA tartine mystique est un peu l'équivalent de la cerise sur le gateau chez les Becodiens. Chaque année des tartines mystiques tombaient du ciel, si par chance une tartine tombait sur la pointe de l'arbre magique alors tous les souhaits des gobomelfes se réalisaient.
 **La tartine mystique**
 
 Le fromage n'a pas suffit. Il m'a fallu des heures pour trouver des ingrédients qui pourraient combler ce vide stomacale. Même les deux tranches de pain me paraissent si fades. Que voulais-je manger?
